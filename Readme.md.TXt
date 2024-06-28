@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @SxripterRar
+- 👀 I’m interested in Scripting ( I'm suck at it )
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on noone
+- 📫 How to reach me nah
+- 😄 Pronouns: guess it
+- ⚡ Fun fact: if people sleep they close their eyes
